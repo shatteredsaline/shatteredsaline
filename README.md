@@ -1,4 +1,4 @@
-idk how this thing works!! hi im cesar. 19. on pt. i fw roblox games a lot. yyyea.
+Hiii im cesar, i like roblox games. Im 19 and  on ponytown.. (jobless behaviour /j) i like a lot of roblox games but also other stuff. ooo you want to look at my strawpage so badddd
 
 <!--
 **shatteredsaline/shatteredsaline** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
