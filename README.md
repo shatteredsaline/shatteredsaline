@@ -1,4 +1,5 @@
 Hiii im cesar, i like roblox games. Im 19 and  on ponytown.. (jobless behaviour /j) i like a lot of roblox games but also other stuff. i block freely. ooo you want to look at my strawpage so badddd
+Also,, i use he/they/it no matter the pony. Im a trans man ^_^
 
 <!--
 **shatteredsaline/shatteredsaline** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
