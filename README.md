@@ -1,3 +1,5 @@
+mostly ignore our github and strawpage, we recently found out were a system!! it would be smart to call us by what pony were using as thats usually whos fronting.
+
 Hiii im cesar, i like roblox games. Im 19 and  on ponytown.. (jobless behaviour /j) i like a lot of roblox games but also other stuff. i block freely. ooo you want to look at my strawpage so badddd
 Also,, i use he/they/it no matter the pony. Im a trans man ^_^
 
