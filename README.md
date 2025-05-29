@@ -1,7 +1,4 @@
-mostly ignore our github and strawpage, we recently found out were a system!! it would be smart to call us by what pony were using as thats usually whos fronting.
-
-Hiii im cesar, i like roblox games. Im 19 and  on ponytown.. (jobless behaviour /j) i like a lot of roblox games but also other stuff. i block freely. ooo you want to look at my strawpage so badddd
-Also,, i use he/they/it no matter the pony. Im a trans man ^_^
+Helloo there! we are the abyssal ruins system,, We collectively use he/they/it generally!! we are bodily 19 and trying our best out here atm. iii dunno what to put here rn we'll update later,,
 
 <!--
 **shatteredsaline/shatteredsaline** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
