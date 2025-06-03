@@ -1,4 +1,5 @@
 Helloo there! we are the abyssal ruins system,, We collectively use he/they/it generally!! we are bodily 19 and trying our best out here atm. iii dunno what to put here rn we'll update later,,
+if we dont int w u dont take it the wrong way were probably just offtab :sob:
 
 <!--
 **shatteredsaline/shatteredsaline** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
