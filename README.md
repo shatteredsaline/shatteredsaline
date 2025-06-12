@@ -1,4 +1,4 @@
-Helloo there! we are the abyssal ruins system,, We collectively use he/they/it generally!! we are bodily 19 and trying our best out here atm. If you see us in the bush by ourselves c+h is always welcome ^_^ 
+Helloo there! we are the abyssal ruins system,, We collectively use he/they/it generally!! you may call us abyssal/abyss if you want!! we are bodily 19 and trying our best out here atm. If you see us in the bush by ourselves c+h is always welcome ^_^ 
 if we dont int w u dont take it the wrong way were probably just offtab :sob:
 
 <!--
