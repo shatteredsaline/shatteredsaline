@@ -1,6 +1,7 @@
 Helloo there! we are the abyssal ruins system,, We collectively use he/they/it generally!! you may call us abyssal/abyss if you want!! we are bodily 19 and trying our best out here atm. If you see us in the bush by ourselves c+h is always welcome ^_^ 
 if we dont int w u dont take it the wrong way were probably just offtab :sob:
 
+WHOEVER THE HELL ASKED ME TO TELL THEM OUR REACTION 2 UU SEASON 1 PARROT POV FINALE... IM GONNA GET YOU... (aka im miserable bro </333)
 <!--
 **shatteredsaline/shatteredsaline** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
